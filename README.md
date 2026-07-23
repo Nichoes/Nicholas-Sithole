@@ -4,7 +4,7 @@ Welcome to **Nichoes Computers** — your trusted partner for professional print
 
 ## 🖨️ About Us
 
-Nichoes Computers is a company specializing in:
+Nichoes Computers is a company specializing in PrintinH,  Accessoriea Sales, Cellphone Repairs
 - **Professional Printing Services** - High-quality prints for businesses and individuals
 - **Poultry Production** - Sustainable and reliable poultry farming solutions
 
